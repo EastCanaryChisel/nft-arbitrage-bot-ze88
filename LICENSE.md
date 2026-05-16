@@ -1,4 +1,4 @@
-# 
+# blur sniper bot NFT-optimized Bot - metadata-parsing and early-mint-access offers the most advanced blur sniper bot, with metadata-parsing and early-mint-access. Ideal for
 
 
 
